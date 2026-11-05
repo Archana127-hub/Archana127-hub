@@ -1,4 +1,4 @@
-# Hi, I'm Archana Goud! 👋
+# Hi, I'm Gaddam Archana! 👋
 
 ### 🚀 Aspiring AI & ML Engineer | Data Science Enthusiast
 
